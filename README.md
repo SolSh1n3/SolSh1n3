@@ -1,3 +1,5 @@
+
+<div align="center">
 # ⋆｡°✩₊˚.⋆☾⋆⁺✧ Olá! Eu sou a Sol ✧⁺⋆☾⋆.˚₊✩°｡⋆
 
 <div align="center">
